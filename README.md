@@ -1,0 +1,1 @@
+# Avada-Responsive-Multi-Purpose-WordPress-Theme-
