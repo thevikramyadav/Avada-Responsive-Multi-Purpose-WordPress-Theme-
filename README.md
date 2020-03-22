@@ -15,12 +15,6 @@ image
 
 Don’t be afraid by looking at the exact amount, no need to worry from below link you can download this theme without paying any single penny …
 
-Enjoy forks.. :) Download Links :-
+Enjoy forks.. :) 
 
-Link 1
-
-Link 2
-
-Link 3
-
-Link 4
+For more such hacks and trick visit :- www.blog.thevikramyadav.com
